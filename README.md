@@ -1,6 +1,6 @@
 
 ### Hi, I am Radip 👋
- intoduce my name is Riski Adi Pangestu, you can call me Radip. I really like playing games. especially mobile legends because maybe I feel my talent is there wkwkwk. and my favorite heroes in mobile legends is kagura because besides being cute and beautiful she is also very strong and agile in playing umbrellas (depending on the player who uses it xixixi)
+ intoduce my name is Riski Adi Pangestu, you can call me Radip. I really like playing games, especially mobile legends because maybe I feel my talent is there wkwkwk. And my favorite heroes in mobile legends is kagura because besides being cute and beautiful she is also very strong and agile in playing umbrellas (depending on the player who uses it xixixi)
  Besides that, I also like sports such as football, badminton, and many more....
  
  
