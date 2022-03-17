@@ -11,18 +11,7 @@
 - 🤔 I’m looking for help with programming because i'm beginner in programming :)
 - 📫 How to reach me: <a href="https://instagram.com/radiippp_24" target="_blank"><img src="https://img.shields.io/badge/instagram-FF5000.svg?&style=flat-square&logo=instagram&logoColor=yellow" alt="Instagram"></a>  <a href="https://www.facebook.com/riskyadi.pangestu.5" target="_blank"><img src="https://img.shields.io/badge/facebook-0000FF.svg?&style=flat-square&logo=facebook&logoColor=white" alt="Facebook">  [![Gmail](https://img.shields.io/badge/-email-c14438?style=flat&logo=Gmail&logoColor=white)](mailto:riskiadipangestu1@gmail.com)
 
+<br>
 
-<!--
-**radiippp/radiippp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently not working yet, but i always working hard to chase my dream
-- 🌱 I’m currently learning on Ahmad dahlan university
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ <img align="center" width="250" height="300" src="https://tenor.com/bBzEm.gif">
+ 
