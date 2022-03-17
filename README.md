@@ -13,5 +13,3 @@
 
 <br>
 
- <img align="center" width="250" height="300" src="https://tenor.com/bBzEm.gif">
- 
