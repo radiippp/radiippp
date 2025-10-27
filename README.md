@@ -1,6 +1,6 @@
 
 ### Hi, I am Radip 👋  
-My name is **Riski Adi Pangestu**, you can call me **Radip**.  
+My name is **Rizki Adi Pangestu**, you can call me **Radip**.  
 I am a **Bachelor of Informatics Graduate from Universitas Ahmad Dahlan (Class of 2025)** with a strong interest in **Data Analytics** and **Web Development**.  
 
 ---
